@@ -1,2 +1,0 @@
-# mauriceoc.github.io
-Site
